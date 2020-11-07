@@ -1,1 +1,1 @@
-[![ko-fi](https://www.ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/Q5Q51X3MA)
+I thought having a README for my GitHub profile would be fun but now I don't know what to write. Welcome to my twisted mind >:3c
